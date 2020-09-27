@@ -6,4 +6,8 @@
 
 ***2. Dhaval Dipen Patania (dhavaldp96)***
 
-[History of Internet Website Link](https://sakthi0722.github.io/History-of-Internet/index.html)
+***Here is the link to the website -***
+[History of Internet Website](https://sakthi0722.github.io/History-of-Internet/index.html)
+
+
+***THANK YOU!***
